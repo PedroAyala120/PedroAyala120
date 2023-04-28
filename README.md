@@ -4,9 +4,7 @@ I'm currently a skilled flooring installer looking to take my passion for techno
 
 I am highly motivated to innovate and revolutionize technology, especially in the field of AI, to help push humanity forward. My ultimate goal is to land a job as an AI Prompt Engineer, where I can apply my skills and contribute to the evolution of technology.
 
-
 The most effective method to contact me would be to email me at (pedroayala120pa@gmail.com).
-
 
 You can locate/contact me via:
 
