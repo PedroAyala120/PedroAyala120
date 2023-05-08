@@ -6,7 +6,6 @@ I am highly motivated to innovate and revolutionize technology, especially in th
  
 The most effective method to contact me would be to email me at (pedroayala120pa@gmail.com).
 
-
 You can locate/contact me via:
 
 - [Website](https://promptlypedro.com)
